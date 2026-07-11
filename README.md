@@ -1,1 +1,1 @@
-This will help the stduent to enchance thier study approach
+This will help the student to enchance thier study approach
